@@ -4,4 +4,4 @@
 
 •🌱 Expertise in PowerBI, SQL, and Python.  Good knowledge of Statistics.
 
-•📫 reach me at [linkedin.com/in/deep-singh-4869a0135/]
+•📫 reach me at https://www.linkedin.com/in/deep-singh-4869a0135/
